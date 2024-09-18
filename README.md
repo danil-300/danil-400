@@ -9,9 +9,9 @@ Meu nome é Danilo
 
 ### Você pode entrar em contato comigo 📧
 
-l00001115057169sp.educacao.sp.gov.br @gmail
+00001115057169sp.educacao.sp.gov.br @gmail
 
-@Danilo-12
+@Danilo_12
 
 
 
